@@ -3,4 +3,4 @@ Just An Old Game
 
 
 The original game was called "Timez Attack"
-The game no longer exists. This is the last copy of it in existence.
+The game no longer exists publicily online (except here, and I think on internet archive? Not sure though).
